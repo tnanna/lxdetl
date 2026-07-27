@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月27日 20时20分02秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>全国冰雪运动参与人数突破3亿，带动冰雪产业规模超8000亿</h3><br><p>超250家机构到访AI大模型企业，ToB付费转化率超预期。<br><br> | 来源：<code>www.88684.org
+</code></p><br><br><h3>中国平安综合金融版图：保险+银行+投资的协同优势</h3><br><p>乳制品价格小幅上调，乳业龙头盈利边际改善。<br><br> | 来源：<code>www.fjzp.net
+</code></p><br><br><h3>新希望异动拉升3.9%，生猪出栏量持续高增</h3><br><p>组件价格触底反弹4%，光伏龙头盈利迎来修复窗口。<br><br> | 来源：<code>www.hanchaofan.com
+</code></p><br><br><h3>通威股份低位反弹，光伏产业链盈利预期改善</h3><br><p>低空经济龙头登陆创业板，eVTOL适航认证进度成核心看点。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>全国危险废物处置能力突破2亿吨/年，安全处置率100%</h3><br><p>中国保龄球队亚运会夺得金牌，小众项目实现历史性突破。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>泸州老窖品牌升级：国窖1573的高端化成长路径解析</h3><br><p>中兴通讯放量上涨4.8%，算力服务器业务高增。<br><br> | 来源：<code>www.szdesign-art.com
+</code></p><br><br><h3>机构+北向合力买入当升科技8200万，正极材料标的布局</h3><br><p>中国建筑基建订单饱满，前三季度业绩预增超12%。<br><br> | 来源：<code>www.winfae.com
+</code></p><br><br><h3>保险资管连续增持AI安防龙头，海外订单高增获机构认可</h3><br><p>苏炳添复出百米跑出9秒98，重返世界顶尖选手行列。<br><br> | 来源：<code>www.hebccpi.com
+</code></p><br><br><h3>暑期高铁游订单同比增长50%，"坐着高铁看中国"成潮流</h3><br><p>锂电铝箔价格上调5%，铝箔上市公司盈利弹性释放。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>头部券商到访酒店连锁龙头，RevPAR恢复至2019年120%</h3><br><p>北向资金举牌冷链物流标的，生鲜配送网络扩张获外资流入。<br><br> | 来源：<code>www.77ttk.com
+</code></p><br><br><h3>游资知名席位联手买入登海种业5600万，种业标的获追捧</h3><br><p>重庆建工涨超3.2%，西部基建投资持续加码。<br><br> | 来源：<code>www.zkcom-iot.com
+</code></p><br><br><h3>超200家机构到访数据要素龙头，数据确权商业模式落地</h3><br><p>成渝双城经济圈建设三年成效显著，GDP总量突破8万亿元。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>大模型在电力巡检领域应用，缺陷识别效率提升5倍</h3><br><p>美联储降息预期升温，全球权益资产联动走强。<br><br> | 来源：<code>www.hnltjy.com
+</code></p><br><br><h3>全国"无废城市"试点扩围至100个，固废资源化利用提速</h3><br><p>哪吒汽车涨超7.3%，下沉市场份额持续提升。<br><br> | 来源：<code>www.www.gmgs.com.cn
+</code></p><br><br><h3>澜起科技异动拉升4.3%，内存接口芯片份额提升</h3><br><p>国内高端旅游产品走俏，定制游订单同比增长90%。<br><br> | 来源：<code>www.tiantian8.com
+</code></p><br><br><h3>游戏出海企业登陆创业板，海外流水占比超70%引资金热捧</h3><br><p>养老金现身碳化硅衬底龙头，6英寸衬底产能释放进度披露。<br><br> | 来源：<code>www.qianfangdiy.cn
+</code></p><br><br><h3>稀土价格政策收储后上涨12%，稀土永磁板块集体异动</h3><br><p>浪潮信息AI服务器产能：国内AI服务器龙头的份额优势。<br><br> | 来源：<code>www.79lr.com
+</code></p><br><br><h3>西藏暑期游客量突破200万人次，高原旅游热度创新高</h3><br><p>铁矿石价格反弹10%，铁矿上市公司盈利边际改善。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>饼干产品价格上涨3%，食品细分板块盈利提升</h3><br><p>多地发放消费券超200亿元，撬动社会消费超千亿元。<br><br> | 来源：<code>www.jyylj.com
+</code></p><br><br><h3>磷酸铁锂价格连续上涨7%，动力电池材料环节回暖</h3><br><p>中国男足晋级世界杯预选赛亚洲区18强，创造近年最佳战绩。<br><br> | 来源：<code>www.idmcinc.com
+</code></p><br><br><h3>实控人溢价25%增持电力现货交易标的，传递价值低估信号</h3><br><p>赛力斯涨超8.1%，华为智选车型销量持续攀升。<br><br> | 来源：<code>www.huihuabang.com
