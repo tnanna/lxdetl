@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月27日 20时20分00秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>赛力斯商业模式拆解：华为深度赋能下的整车成长逻辑</h3><br><p>海尔智家高端产品占比提升，单季业绩预告超预期。<br><br> | 来源：<code>www.szhdly.com.cn
+</code></p><br><br><h3>北向资金大额增持天齐锂业，锂矿龙头外资持仓环比大增</h3><br><p>金风科技风电整机技术：国内风电龙头的技术迭代路径。<br><br> | 来源：<code>www.88684.org
+</code></p><br><br><h3>新宙邦涨超4.5%，电解液盈利预期改善</h3><br><p>藏羚羊种群数量突破30万只，从濒危物种恢复至无危。<br><br> | 来源：<code>www.fjzp.net
+</code></p><br><br><h3>美联储宣布降息25个基点，全球货币政策转向宽松周期</h3><br><p>主线行情里不要轻易切换赛道：拿住核心标的才能吃到大行情。<br><br> | 来源：<code>www.hanchaofan.com
+</code></p><br><br><h3>理想汽车涨超8.5%，L系列车型月销破4万</h3><br><p>中国中车海外订单落地，单季业绩预告超预期。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>广州马拉松开跑，参赛选手破3万全马完赛率创新高</h3><br><p>养老金新进PCB龙头，布局AI服务器硬件赛道。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>国产儿童动画全网播放量突破250亿，陪伴新一代青少年成长</h3><br><p>证监会启动全面注册制优化改革，提升资本市场包容性。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>全国公共图书馆年流通人次突破10亿，全民阅读氛围浓厚</h3><br><p>外资机构席位净买入国电南瑞1.6亿，电网设备龙头获外资加仓。<br><br> | 来源：<code>www.captainandthechief.com
+</code></p><br><br><h3>北向资金单日买入伊利股份1.2亿，乳业龙头获外资持续流入</h3><br><p>上半年全国光伏组件出口同比增长28%，全球市场份额超92%。<br><br> | 来源：<code>www.szdesign-art.com
+</code></p><br><br><h3>氢能燃料电池龙头登陆创业板，商用车推广订单同比大增</h3><br><p>洛阳龙门石窟暑期游客量突破200万人次，石窟艺术游受追捧。<br><br> | 来源：<code>www.vetb-us.com
+</code></p><br><br><h3>超230家机构到访工业软件龙头，研发设计软件付费转化率</h3><br><p>进口博览会政策红利，进口贸易板块全线走强。<br><br> | 来源：<code>www.winfae.com
+</code></p><br><br><h3>中国女子现代五项队世锦赛夺冠，拿到巴黎奥运入场券</h3><br><p>浪潮信息AI服务器产能：算力需求爆发下的业绩弹性。<br><br> | 来源：<code>www.hmmanhua.com
+</code></p><br><br><h3>存款利率下调推动理财收益率下行，权益基金发行回暖</h3><br><p>贵州建工异动拉升3.1%，区域基建业务高增。<br><br> | 来源：<code>www.hebccpi.com
+</code></p><br><br><h3>降准降息组合拳落地，大金融板块率先迎来行情催化</h3><br><p>北向资金大额扫货万华化学1.3亿，化工龙头获外资流入。<br><br> | 来源：<code>www.cncbsc.com
+</code></p><br><br><h3>全国登山健身大会覆盖百座名山，参与人次破500万</h3><br><p>外资机构集中调研短视频出海标的，海外用户规模破亿。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>降准降息组合拳落地，大金融板块率先迎来行情催化</h3><br><p>动力电池回收管理办法出台，锂电回收板块全线异动。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>福耀玻璃全球汽车玻璃布局：细分赛道全球龙头的壁垒</h3><br><p>保险资管连续增持AI安防龙头，海外订单高增获机构认可。<br><br> | 来源：<code>www.77ttk.com
+</code></p><br><br><h3>企业融资成本创历史新低，制造业投资增速回升</h3><br><p>中际旭创再创阶段新高，光模块赛道高景气延续。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>体育产业消费刺激政策，体育消费标的全线异动</h3><br><p>料酒价格上涨4%，调味品细分板块迎来行情。<br><br> | 来源：<code>www.zkcom-iot.com
+</code></p><br><br><h3>中国女子棒球队闯入世界杯八强，项目发展迎来新机遇</h3><br><p>全球智能穿戴市场规模突破2000亿美元，消费电子回暖。<br><br> | 来源：<code>www.thepodala.com
+</code></p><br><br><h3>1年期LPR下调10BP，实体经济融资成本进一步下行</h3><br><p>有机硅价格连续上涨10%，硅化工龙头盈利修复超预期。<br><br> | 来源：<code>www.tpyqczl.com
