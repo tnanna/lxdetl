@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月27日 20时19分57秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>中国男子皮划艇队世锦赛夺冠，静水项目实现金牌零突破</h3><br><p>AI手语翻译大模型上线，助力千万听障人士沟通无障碍。<br><br> | 来源：<code>www.hanchaofan.com
+</code></p><br><br><h3>汽车出口数据亮眼：自主车企、零部件的业绩增量分析</h3><br><p>存量房贷利率下调释放万亿现金流，可选消费板块弹性最大。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>宇通客车全球客车龙头优势：新能源客车的全球份额扩张</h3><br><p>头部券商到访调味品龙头，渠道库存去化周期数据披露。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>QFII集中调研海上风电标的，深远海项目订单引热议</h3><br><p>张家界暑期游客量突破300万人次，山岳旅游热度攀升。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>维生素A价格单月上涨18%，饲料添加剂板块迎来行情</h3><br><p>全国消费促进月活动启动，覆盖超百万商家拉动暑期消费。<br><br> | 来源：<code>www.captainandthechief.com
+</code></p><br><br><h3>天然气价格季节性上涨15%，燃气运营板块迎来行情</h3><br><p>跨境支付龙头登陆港股，海外结算规模年增速超80%。<br><br> | 来源：<code>www.szdesign-art.com
+</code></p><br><br><h3>鸡肉价格单月上涨15%，白羽鸡板块盈利弹性释放</h3><br><p>游资知名席位联手买入中微公司1.3亿，刻蚀设备标的追捧。<br><br> | 来源：<code>www.vetb-us.com
+</code></p><br><br><h3>百亿私募组团调研固态电解质企业，实验室数据突破行业阈值</h3><br><p>头部券商到访家电出海龙头，海外自主品牌占比突破40%。<br><br> | 来源：<code>www.winfae.com
+</code></p><br><br><h3>保险资管连续增持AI安防龙头，海外订单高增获机构认可</h3><br><p>产业资本连续增持智能电网标的，特高压产业链获资本布局。<br><br> | 来源：<code>www.hmmanhua.com
+</code></p><br><br><h3>中国西电异动拉升3.6%，输配电设备集团整合加速</h3><br><p>国际金价创历史新高，黄金珠宝标的集体上涨。<br><br> | 来源：<code>www.hebccpi.com
+</code></p><br><br><h3>三星堆博物馆新馆全面开放，单日最大接待量突破5万人次</h3><br><p>存款利率市场化改革深化，银行负债成本持续优化。<br><br> | 来源：<code>www.cncbsc.com
+</code></p><br><br><h3>全国碳市场覆盖行业扩围至8个，交易活跃度大幅提升</h3><br><p>车规级芯片国产替代加速，汽车半导体板块走强。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>镍价单月上涨11%，不锈钢板块迎来涨价催化</h3><br><p>全球航运市场回暖，集装箱运价指数回升至合理区间。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>五粮液重回160元，关键点位的多空博弈分析</h3><br><p>全国碳排放强度同比下降4.2%，提前完成"十四五"减排目标。<br><br> | 来源：<code>www.77ttk.com
+</code></p><br><br><h3>科达利放量拉升4.7%，锂电池结构件订单饱满</h3><br><p>东部地区率先实现高质量发展，人均GDP突破12万元。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>北向资金连续流入紫金矿业，黄金龙头外资持仓持续提升</h3><br><p>长安汽车涨停封板，自主车企销量超预期引爆行情。<br><br> | 来源：<code>www.zkcom-iot.com
+</code></p><br><br><h3>全国朱鹮种群数量突破1万只，从7只恢复至广泛分布</h3><br><p>网易有道教育大模型落地，AI个性化学习系统覆盖千万学生。<br><br> | 来源：<code>www.thepodala.com
+</code></p><br><br><h3>招商银行净息差企稳，前三季度业绩预增超15%</h3><br><p>华为智选新车型发布，相关合作车企单日大涨。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>半导体国产替代推进：制造、设备、材料的突破路径</h3><br><p>全国城镇调查失业率降至4.8%，就业形势保持总体稳定。<br><br> | 来源：<code>www.trqgzc.com
+</code></p><br><br><h3>中东产油国延长减产协议，国际油价维持温和上涨态势</h3><br><p>产业基金组团调研后集中增持存储模组龙头，合计投入超7亿。<br><br> | 来源：<code>www.hnltjy.com
+</code></p><br><br><h3>液冷技术标的开启新股申购，AI数据中心液冷订单爆发式增长</h3><br><p>公募基金集中调研储能温控龙头，海外客户拓展引关注。<br><br> | 来源：<code>www.www.bbca.com.cn
