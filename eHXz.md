@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月29日 02时54分24秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>汉服产业市场规模上半年突破100亿元，国风服饰成为日常潮流</h3><br><p>中际旭创再创历史新高，800G光模块份额超70%。<br><br> | 来源：<code>https://tiantianwang.com.cn
+</code></p><br><br><h3>贵州茅台前三季度营收破千亿，业绩预告超预期</h3><br><p>水利工程建设规划，水利基建板块走强。<br><br> | 来源：<code>https://tiantianzonghewang.com.cn
+</code></p><br><br><h3>邮轮旅游市场重启，上半年国际邮轮订单同比增长300%</h3><br><p>海上风电深远海规划，深远海风电板块集体上涨。<br><br> | 来源：<code>https://tiaojiaomugou.com.cn
+</code></p><br><br><h3>阳光电源放量上涨6.5%，海外逆变器订单爆发</h3><br><p>大模型在能源领域应用，电网调度效率提升25%。<br><br> | 来源：<code>https://tiaojiaoxiaoshuo.com.cn
+</code></p><br><br><h3>恩捷股份隔膜技术壁垒：锂电池隔膜全球龙头的份额优势</h3><br><p>消费电子复苏周期：苹果链、安卓链的需求回暖信号。<br><br> | 来源：<code>https://tingting-zonghe.com.cn
+</code></p><br><br><h3>大模型轻量化技术突破，1B参数模型效果追平百亿级模型</h3><br><p>数据要素政策落地，数据确权板块全线上涨。<br><br> | 来源：<code>https://tongrenbaodi.com.cn
+</code></p><br><br><h3>实控人承诺12个月内不减持智慧矿山标的，稳定市场预期</h3><br><p>被动元器件价格集体上涨，电子板块盈利边际改善。<br><br> | 来源：<code>https://tongrendongmanwangzhan.org.cn
+</code></p><br><br><h3>水产品价格集体上涨，水产养殖板块迎来涨价催化</h3><br><p>社保基金新进重仓钙钛矿光伏标的，持仓占比达4.2%。<br><br> | 来源：<code>https://tongxue-mama-huaiyun-ting-daduzi.com.cn
+</code></p><br><br><h3>贵州茅台前三季度营收破千亿，业绩预告超预期</h3><br><p>中国女子自行车队世锦赛场地赛夺冠，实现金牌突破。<br><br> | 来源：<code>https://top-19-vip.com.cn
+</code></p><br><br><h3>大股东耗资4.5亿增持碳化硅衬底龙头，助力6英寸产能扩张</h3><br><p>京东言犀大模型供应链版上线，助力电商降本增效。<br><br> | 来源：<code>https://top-haobo-sports.com.cn
+</code></p><br><br><h3>圣邦股份模拟芯片布局：国产模拟芯片龙头的成长路径</h3><br><p>10年期国债收益率下行至历史低位，高股息资产配置价值凸显。<br><br> | 来源：<code>https://top-kaiyundianjing.com.cn
+</code></p><br><br><h3>实控人兜底式增持游戏出海龙头，员工响应参与超预期</h3><br><p>草原生态保护政策，草牧业板块全线拉升。<br><br> | 来源：<code>https://top-oubao-sports.com.cn
+</code></p><br><br><h3>贵州茅台近5年财务复盘：高毛利背后的盈利稳定性逻辑</h3><br><p>上半年全国实际使用外资同比增长3.1%，高技术产业占比超40%。<br><br> | 来源：<code>https://top-worldcup-odds.com
+</code></p><br><br><h3>新宙邦电解液业务优势：锂电电解液龙头的盈利稳定性</h3><br><p>国内大模型性能榜单更新，国产模型多项指标超越国际竞品。<br><br> | 来源：<code>https://toupai-shipin.com.cn
+</code></p><br><br><h3>北向资金单日买入海康威视3.2亿，AI安防龙头获外资流入</h3><br><p>西湖暑期游客量突破600万人次，免费景区持续释放民生红利。<br><br> | 来源：<code>https://toupaizipai.cn
+</code></p><br><br><h3>人民币汇率升值叠加美联储降息，航空造纸板块集体异动</h3><br><p>挪威经济稳步增长，油气和新能源产业协同发展。<br><br> | 来源：<code>https://tu-tu-jiang.com.cn
+</code></p><br><br><h3>全国国家森林公园数量增至1000个，生态旅游蓬勃发展</h3><br><p>全国生态保护红线划定完成，覆盖超三分之一陆域面积。<br><br> | 来源：<code>https://uzcnby-vip-web.com.cn
+</code></p><br><br><h3>存款利率下调后居民储蓄搬家，A股新增开户数环比大增</h3><br><p>体育赛事与全民健身（100条）。<br><br> | 来源：<code>https://vip-9170-jinsha.com
+</code></p><br><br><h3>巴黎奥运会中国代表团斩获42金，位列金牌榜第二位</h3><br><p>美的集团全球化运营：家电龙头的海外市场拓展路径。<br><br> | 来源：<code>https://vip-fb-tiyu.com.cn
+</code></p><br><br><h3>头部券商到访光伏胶膜标的，原材料成本下降弹性曝光</h3><br><p>人工智能与大模型应用（100条）。<br><br> | 来源：<code>https://vip-jb-tiyu.com.cn
