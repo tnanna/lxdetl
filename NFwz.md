@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月29日 02时54分21秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>国内大模型集中落地，AI办公标的迎来估值修复</h3><br><p>中国女子现代五项队世锦赛夺冠，拿到巴黎奥运入场券。<br><br> | 来源：<code>https://jingpinjiujiujiu.com.cn
+</code></p><br><br><h3>大股东耗资6亿增持半导体材料龙头，彰显国产替代信心</h3><br><p>冷链物流扶持政策，冷链物流板块集体上涨。<br><br> | 来源：<code>https://jingpinmeinuzaixianguankan.cn
+</code></p><br><br><h3>6G技术研发加速：通信设备、射频器件的布局窗口</h3><br><p>动力电池级碳酸锂报价单日上涨2000元/吨，产业链回暖信号显现。<br><br> | 来源：<code>https://jingpinshipin.cn
+</code></p><br><br><h3>天齐锂业锂价反弹，单季业绩预告环比大增</h3><br><p>稀土价格政策收储后上涨12%，稀土永磁板块集体异动。<br><br> | 来源：<code>https://jingpinshipin.com.cn
+</code></p><br><br><h3>国内高铁游人次上半年破10亿，“快旅慢游”成主流模式</h3><br><p>百亿私募组团调研生物育种标的，玉米种子推广面积超预期。<br><br> | 来源：<code>https://jingpinwang.com.cn
+</code></p><br><br><h3>中国射箭队世锦赛打破世界纪录，首次夺得团体金牌</h3><br><p>社保基金新进重仓钙钛矿光伏标的，持仓占比达4.2%。<br><br> | 来源：<code>https://jingpinwuma.cn
+</code></p><br><br><h3>全国羽毛球锦标赛落幕，00后小将包揽三项冠军</h3><br><p>中国中车全球轨交布局：一带一路下的海外订单增长逻辑。<br><br> | 来源：<code>https://jingpinyi-qu.com.cn
+</code></p><br><br><h3>央行下调SLF利率，货币政策宽松取向进一步明确</h3><br><p>央行加大公开市场操作力度，资金面维持平稳宽松。<br><br> | 来源：<code>https://jingpinyi-querqu.com.cn
+</code></p><br><br><h3>CBA总决赛辽宁队4-1夺冠，实现三连冠建立王朝</h3><br><p>亿纬锂能储能订单爆发，前三季度业绩预增90%。<br><br> | 来源：<code>https://jingpinyiquerqu.com.cn
+</code></p><br><br><h3>全球元宇宙相关产业规模突破2万亿美元，应用场景拓展</h3><br><p>社保基金新进智慧矿山龙头，布局煤矿智能化改造赛道。<br><br> | 来源：<code>https://jingpinyiqujiujiuoumei.cn
+</code></p><br><br><h3>集成电路税收减免政策延长，芯片全板块集体上涨</h3><br><p>金砖国家新成员全部完成入盟流程，成员国总数达15国。<br><br> | 来源：<code>https://jingxiangjulia.net.cn
+</code></p><br><br><h3>暑期高铁游订单同比增长50%，"坐着高铁看中国"成潮流</h3><br><p>天际股份锂电材料业务：传统化工企业的转型成长逻辑。<br><br> | 来源：<code>https://jinman-tiantang.com.cn
+</code></p><br><br><h3>上半年全国居民消费支出同比增长7.3%，服务消费占比提升</h3><br><p>大模型在城市治理领域应用，事件处理响应速度提升3倍。<br><br> | 来源：<code>https://jinmandaowang.com.cn
+</code></p><br><br><h3>印度经济增速达7.2%，成为全球增长最快主要经济体</h3><br><p>6G技术研发推进计划，通信设备板块全线异动。<br><br> | 来源：<code>https://jinmantiantangbenzi.com.cn
+</code></p><br><br><h3>钯价连续上涨9%，汽车尾气催化板块盈利改善</h3><br><p>金风科技风电整机技术：国内风电龙头的技术迭代路径。<br><br> | 来源：<code>https://jinmantiantangfabuye.com.cn
+</code></p><br><br><h3>基金公司集体到访人形电机龙头，力矩电机产能释放数据</h3><br><p>包装纸价格上涨5%，包装板块成本端压力传导顺畅。<br><br> | 来源：<code>https://jinmantiantangfangwen.com.cn
+</code></p><br><br><h3>A股总市值突破90万亿元，资本市场改革红利持续释放</h3><br><p>赣锋锂业回收业务布局：锂电回收的长期成长空间解析。<br><br> | 来源：<code>https://jinmantiantangjmcomic.com.cn
+</code></p><br><br><h3>半导体产业扶持基金落地，大基金二期标的全线拉升</h3><br><p>QFII集中调研医药流通龙头，院外市场拓展节奏披露。<br><br> | 来源：<code>https://jinmantiantangmanhua.com.cn
+</code></p><br><br><h3>养老金新进创新药龙头，布局创新管线长期成长逻辑</h3><br><p>中国垒球队获得亚运会银牌，项目普及度快速提升。<br><br> | 来源：<code>https://jinmantiantangrukou.com.cn
+</code></p><br><br><h3>投资是认知的变现：你永远赚不到超出自己认知范围的钱</h3><br><p>欧元区经济走出衰退，二季度GDP环比增长0.3%。<br><br> | 来源：<code>https://jinmantiantangwang.com.cn
