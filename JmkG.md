@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月29日 02时54分47秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>招商银行放量上涨3.0%，净息差边际企稳</h3><br><p>光伏行业产能置换政策落地，落后产能出清标的异动。<br><br> | 来源：<code>https://zh-kan-pian-wangzhan.com.cn
+</code></p><br><br><h3>地方国资战略入股数据要素龙头，持股比例达12%成第二大股东</h3><br><p>国内动漫文旅融合项目爆发，动漫主题乐园暑期营收破百亿。<br><br> | 来源：<code>https://zh-koujiao.com.cn
+</code></p><br><br><h3>音乐节市场上半年演出超500场，年轻群体消费占比超80%</h3><br><p>泸州老窖品牌升级：国窖1573的高端化成长路径解析。<br><br> | 来源：<code>https://zh-loli.com.cn
+</code></p><br><br><h3>全国碳排放权交易市场成交额突破200亿元，碳定价机制完善</h3><br><p>锦浪科技涨超7.0%，组串式逆变器出口高增。<br><br> | 来源：<code>https://zh-lolicon.com.cn
+</code></p><br><br><h3>饼干产品价格上涨3%，食品细分板块盈利提升</h3><br><p>超300家机构扎堆调研AI算力龙头，核心业务数据首次披露。<br><br> | 来源：<code>https://zh-lolita.com.cn
+</code></p><br><br><h3>控股股东耗资5亿大手笔增持AI算力龙头，彰显长期发展信心</h3><br><p>通威股份涨超4.9%，硅料价格企稳反弹。<br><br> | 来源：<code>https://zh-luanlun.com.cn
+</code></p><br><br><h3>丽江暑期民宿入住率达95%，云南文旅市场持续回暖</h3><br><p>存量房贷利率下调释放居民现金流，可选消费板块受益。<br><br> | 来源：<code>https://zh-luolita.com.cn
+</code></p><br><br><h3>存款利率市场化调整机制优化，银行负债端成本进一步压降</h3><br><p>中国交建海外订单落地，前三季度业绩预增超18%。<br><br> | 来源：<code>https://zh-luotimeinu.com.cn
+</code></p><br><br><h3>大金重工放量上涨5.7%，风电塔筒全球份额领先</h3><br><p>长电科技先进封装技术：全球封测龙头的份额提升逻辑。<br><br> | 来源：<code>https://zh-madoushipin.com.cn
+</code></p><br><br><h3>海康威视海外市场拓展：AI安防产品的全球份额提升</h3><br><p>大消费板块估值修复：白酒、家电、医药的布局机会对比。<br><br> | 来源：<code>https://zh-meiri-dasai.com.cn
+</code></p><br><br><h3>山西汾酒全国化路径：清香型白酒龙头的全国扩张逻辑</h3><br><p>中国交建港口航道优势：全球港口建设龙头的核心壁垒。<br><br> | 来源：<code>https://zh-mianfeidianying.com.cn
+</code></p><br><br><h3>成都马拉松开跑，赛道串联城市核心景点成网红赛事</h3><br><p>全国商品房销售面积同比由负转正，市场信心逐步恢复。<br><br> | 来源：<code>https://zh-mitao-yingshi.com.cn
+</code></p><br><br><h3>全国儿童青少年近视率同比下降2%，视力防控成效显现</h3><br><p>全国臭氧浓度同比下降5%，夏季蓝天数量明显增加。<br><br> | 来源：<code>https://zh-mitaochuanmei.com.cn
+</code></p><br><br><h3>国内降准政策落地，大金融板块全线拉升</h3><br><p>天齐锂业触底反弹，锂矿价格企稳带动板块情绪。<br><br> | 来源：<code>https://zh-mitaoshipin.com.cn
+</code></p><br><br><h3>客家文化申遗工作推进，千年迁徙文化得到系统性保护</h3><br><p>新能源整车板块集体反弹：谁是下一个领涨龙头。<br><br> | 来源：<code>https://zh-mitaotv.com.cn
+</code></p><br><br><h3>消费券集中发放，大消费板块迎来情绪催化</h3><br><p>国企改革三年行动收官，央企营收同比增长6.8%。<br><br> | 来源：<code>https://zh-mitaowangzhan.com.cn
+</code></p><br><br><h3>兆易创新存储芯片价格反弹，前三季度业绩预增超70%</h3><br><p>北向资金大额增持天齐锂业，锂矿龙头外资持仓环比大增。<br><br> | 来源：<code>https://zh-mitaoyingshi.com.cn
+</code></p><br><br><h3>保险资管扎堆调研绿电运营标的，电价弹性空间引热议</h3><br><p>全国分布式能源装机规模突破12亿千瓦，就地就近消纳。<br><br> | 来源：<code>https://zh-mitaozaixian.com.cn
+</code></p><br><br><h3>全国新能源汽车保有量突破3000万辆，减排效果显著</h3><br><p>百亿私募组团调研固态电解质企业，实验室数据突破行业阈值。<br><br> | 来源：<code>https://zh-miya.com.cn
+</code></p><br><br><h3>小鹏汽车单季交付破3万，业绩亏损大幅收窄</h3><br><p>洛阳龙门石窟暑期游客量突破200万人次，石窟艺术游受追捧。<br><br> | 来源：<code>https://zh-mogushipin.com.cn
