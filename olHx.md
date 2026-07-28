@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月29日 02时54分44秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>头部券商到访汽车座椅龙头，新势力车企订单占比突破50%</h3><br><p>中际旭创再创阶段新高，趋势加速下的持仓策略。<br><br> | 来源：<code>https://nan-tong-wang.com.cn
+</code></p><br><br><h3>百亿私募组团调研碳纤维企业，风电领域应用占比突破60%</h3><br><p>上半年全国航空航天制造业营收同比增长22%。<br><br> | 来源：<code>https://nan-tongshipin.com.cn
+</code></p><br><br><h3>北方稀土行业地位：稀土全产业链龙头的政策红利</h3><br><p>电解铝价格突破2万元/吨，铝业上市公司盈利弹性释放。<br><br> | 来源：<code>https://nan-tongwang.com.cn
+</code></p><br><br><h3>中航沈飞涨超4.7%，军机交付进度超市场预期</h3><br><p>核电新项目审批重启，核电产业链标的全线拉升。<br><br> | 来源：<code>https://nan-tongwangzhan.com.cn
+</code></p><br><br><h3>全国疫苗接种覆盖率保持99%以上，免疫规划覆盖所有适龄人群</h3><br><p>吉利汽车放量上涨5.6%，新能源车型占比突破50%。<br><br> | 来源：<code>https://nana-qingliang-ban.com.cn
+</code></p><br><br><h3>北方稀土稀土全产业链布局：国内稀土龙头的政策红利</h3><br><p>养老服务体系建设政策，养老产业标的全线走强。<br><br> | 来源：<code>https://nangong-group-download.com
+</code></p><br><br><h3>AI数字人直播常态化，超十万直播间启用AI虚拟主播</h3><br><p>央行降准降息组合拳落地，A股市场迎来全面估值修复。<br><br> | 来源：<code>https://nangongqiubao.com.cn
+</code></p><br><br><h3>网易有道教育大模型落地，AI个性化学习系统覆盖千万学生</h3><br><p>鸡蛋价格季节性上涨10%，蛋鸡养殖板块盈利改善。<br><br> | 来源：<code>https://nannubaluobo.com.cn
+</code></p><br><br><h3>地震应急响应升级，灾后重建板块异动</h3><br><p>通威股份硅料产能优势：低成本产能释放下的行业格局。<br><br> | 来源：<code>https://nannuzuoaishipin.com.cn
+</code></p><br><br><h3>黄河流域生态保护取得阶段性成效，水质优良比例达92%</h3><br><p>农村物流体系建设规划，乡村物流标的全线异动。<br><br> | 来源：<code>https://nanrenhuanggong.cn
+</code></p><br><br><h3>全球海洋经济规模突破3万亿美元，蓝色经济成新增长点</h3><br><p>宝钢股份涨超3.1%，板材价格企稳回升。<br><br> | 来源：<code>https://nanshengcaonusheng.com.cn
+</code></p><br><br><h3>苏州推出“姑苏八点半”升级活动，夜间消费场景拓展至全域</h3><br><p>卫星互联网频率分配落地，卫星制造板块集体上涨。<br><br> | 来源：<code>https://nantong-wang.com.cn
+</code></p><br><br><h3>洋河梦之蓝批价上调4%，白酒全产业链盈利优化</h3><br><p>字节跳动豆包大模型企业版发布，百万企业开启AI办公升级。<br><br> | 来源：<code>https://nantonghucao.com.cn
+</code></p><br><br><h3>全国房地产开发投资降幅收窄，市场预期逐步企稳</h3><br><p>粤高速A异动拉升2.6%，大湾区车流量高增。<br><br> | 来源：<code>https://nantongwangwang.com.cn
+</code></p><br><br><h3>双汇发展肉制品盈利修复，前三季度业绩预增超20%</h3><br><p>小康股份涨超7.7%，新能源汽车业务盈利修复。<br><br> | 来源：<code>https://nencao-yingyuan.cn
+</code></p><br><br><h3>北京马拉松参赛规模扩至3万人，报名人数破50万创新高</h3><br><p>北方稀土突破前期平台，短线弹性有望释放。<br><br> | 来源：<code>https://nencaowang.com.cn
+</code></p><br><br><h3>全国职业体育俱乐部数量超2000家，联赛体系覆盖全项目</h3><br><p>保险资管扎堆调研机器人减速器标的，产能释放进度披露。<br><br> | 来源：<code>https://new-19-sports.com.cn
+</code></p><br><br><h3>美联储降息周期开启，北向资金单周净流入超300亿</h3><br><p>1年期LPR下调降低企业短期融资成本，经营活力提升。<br><br> | 来源：<code>https://new-850-official.com
+</code></p><br><br><h3>派能科技海外认证优势：户用储能产品的全球准入壁垒</h3><br><p>西藏暑期游客量突破200万人次，高原旅游热度创新高。<br><br> | 来源：<code>https://new-8x8.com.cn
+</code></p><br><br><h3>安凯客车涨超4.3%，客车出口订单同比增长</h3><br><p>生成式AI服务管理细则，AI应用板块情绪修复。<br><br> | 来源：<code>https://new-9191.com.cn
